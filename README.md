@@ -1,1 +1,1 @@
-"# codingku" 
+"Berusaha Menjadi Yang Berguna" 
