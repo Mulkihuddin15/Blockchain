@@ -1,1 +1,1 @@
-"Berusaha Menjadi Yang Berguna" 
+Blockchain.com adalah layanan ekplorasi blok Bitcoin, semacam Wallet atau dompet mata uang kripto yang sesuai untuk Bitcoin, Bitcoin Cash, dan Ethereum. Mereka juga menyediakan data grafik Bitcoin, statistik, dan informasi pasar. Blockchain.info diluncurkan pada Agustus 2011.
